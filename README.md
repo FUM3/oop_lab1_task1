@@ -1,1 +1,1 @@
-# oop_lab1_task1
+*Valuiski* ~~Aliaksei~~ __Vyacheslavovich__
